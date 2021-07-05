@@ -1,0 +1,1 @@
+Estou achando o curso muito bom, ele aborda varios temas, vai alem de só a programação.
